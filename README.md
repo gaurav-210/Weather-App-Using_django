@@ -1,1 +1,0 @@
-# video lecture for this app is  here: https://youtu.be/v7xjdXWZafY
